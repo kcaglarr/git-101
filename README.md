@@ -3,6 +3,10 @@ hallettim sonunda
 
 # git-101
 
+
+
+Merhaba Hocam Youtube Kanallinize abone oldum 
+
 recep taş birgad.com ziyaret ettiniz mi???
 
 Olduk hocam
@@ -12,6 +16,7 @@ obone oldum hocam :D
 
 
 Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
+
 
 hlltk
 Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
