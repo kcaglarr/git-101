@@ -1,3 +1,4 @@
+ 
 # git_101
 My Name is <b>Yamamah Hosen</b>,I am <b>30</b> years old,<b>information and communication technology engineering</b>,ihave a <b>master degree in communication</b>
 I work in programming and webdesign section
@@ -30,3 +31,16 @@ programming
   <a href="https://www.jasminaid.dk/new-sitess/pt/index.php">ping tech</a><br>
   <a href="https://canadian-academy.org/">canadian-academy</a>
   <br>
+ 
+# git-101
+
+Hi Mr.Karim
+sorry am still not 
+but i will
+
+ahmet  can yeni pull deneme
+Hemen abone olam :)
+Kerim Çağlar youtube kanalına hala abone olmadınız mı???
+bu ekibin ilk abonesi benim.
+
+ 
