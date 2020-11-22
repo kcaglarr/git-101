@@ -1,4 +1,11 @@
 # git-101
+
+hlltk
+Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
+
+Kerim Çağlar youtube kanalına hala abone olmadınız mı???
+ main
+
 <b>Mehmet Parlak</b><br>
 <b>Kerim Hocanın Kanalı:</b>
 https://www.youtube.com/channel/UCKwEqVrO0t4WYOmN5kvmcz<br>
@@ -14,3 +21,4 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
+
