@@ -1,4 +1,7 @@
 
+# git-101
+Abone oldum hocam.
+
 hallettim sonunda
 
 Abone oldum Hocam
@@ -41,4 +44,3 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
-
