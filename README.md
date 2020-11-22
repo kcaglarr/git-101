@@ -1,5 +1,8 @@
 
 # git-101
+
+main
+
 Abone oldum hocam.
 
 hallettim sonunda
@@ -40,6 +43,10 @@ but i will
 ahmet  can yeni pull deneme
 Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
+
+omar
+Tabii ki oldum hocam.<br>
+Thank you...
 bu ekibin ilk abonesi benim.
 Abone Oldum
 
