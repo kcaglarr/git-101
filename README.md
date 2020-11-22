@@ -7,6 +7,17 @@ hallettim sonunda
 
 Merhaba Hocam Youtube Kanallinize abone oldum 
 
+recep taş birgad.com ziyaret ettiniz mi???
+
+Olduk hocam
+
+
+obone oldum hocam :D
+
+
+Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
+
+
 hlltk
 Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
 
@@ -29,5 +40,3 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
-
-
