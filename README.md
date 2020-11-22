@@ -2,6 +2,7 @@
 <b>Mehmet Parlak</b><br>
 <b>Kerim Hocanın Kanalı:</b>
 https://www.youtube.com/channel/UCKwEqVrO0t4WYOmN5kvmcz<br>
+Çoktan oldum hocam :) -- KADİR
 Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
 Abone oldum
 abone oldum hocam :)
@@ -13,5 +14,3 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
-
-
