@@ -1,7 +1,18 @@
+
+hallettim sonunda
+
 # git-101
 
 
+
 Merhaba Hocam Youtube Kanallinize abone oldum 
+
+hlltk
+Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
+
+Kerim Çağlar youtube kanalına hala abone olmadınız mı???
+ main
+
 
 <b>Mehmet Parlak</b><br>
 <b>Kerim Hocanın Kanalı:</b>
@@ -18,3 +29,5 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
+
+
