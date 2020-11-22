@@ -1,2 +1,2 @@
 # git-101
-"message"
+Abone oldum
