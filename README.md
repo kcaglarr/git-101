@@ -4,11 +4,18 @@ hallettim sonunda
 # git-101
 Olduk hocam.
 
+
+obone oldum hocam :D
+
+
+Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
+
 hlltk
 Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
 
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
  main
+
 
 <b>Mehmet Parlak</b><br>
 <b>Kerim Hocanın Kanalı:</b>
