@@ -2,6 +2,7 @@
 hallettim sonunda
 
 # git-101
+Olduk hocam.
 
 hlltk
 Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
