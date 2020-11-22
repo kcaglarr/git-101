@@ -1,2 +1,2 @@
 # git-101
-Çoktan oldum hocam :)
+Çoktan oldum hocam :) -- KADİR
