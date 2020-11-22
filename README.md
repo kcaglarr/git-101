@@ -1,4 +1,5 @@
 # git-101
+abone oldum hocam :)
 
 Hi Mr.Karim
 sorry am still not 
