@@ -2,7 +2,10 @@
 hallettim sonunda
 
 # git-101
-Olduk hocam.
+
+recep taş birgad.com ziyaret ettiniz mi???
+
+Olduk hocam
 
 
 obone oldum hocam :D
@@ -32,5 +35,6 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
+
 
 
