@@ -1,7 +1,11 @@
 
 # git-101
 
+
+Olduk tabi hocam:))
+
 main
+
 
 Abone oldum hocam.
 
@@ -49,6 +53,9 @@ Tabii ki oldum hocam.<br>
 Thank you...
 bu ekibin ilk abonesi benim.
 Abone Oldum
+
+
+
 
 
 
