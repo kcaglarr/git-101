@@ -7,14 +7,13 @@ hallettim sonunda
 Abone oldum Hocam
 
 
-
+Abone oldum hocam :)
 
 Merhaba Hocam Youtube Kanallinize abone oldum 
 
 recep taş birgad.com ziyaret ettiniz mi???
 
 Olduk hocam
-
 
 obone oldum hocam :D
 
@@ -27,7 +26,6 @@ Linkedin hesabım: https://www.linkedin.com/in/halil-teke/
 
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
  main
-
 
 <b>Mehmet Parlak</b><br>
 <b>Kerim Hocanın Kanalı:</b>
@@ -44,3 +42,7 @@ Hemen abone olam :)
 Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 Abone Oldum
+
+
+
+
