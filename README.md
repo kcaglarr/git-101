@@ -1,4 +1,7 @@
 # git-101
+
+Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
+
 Abone oldum
 abone oldum hocam :)
 
@@ -12,3 +15,4 @@ Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 
 Abone Oldum
+
