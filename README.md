@@ -2,7 +2,10 @@
 hallettim sonunda
 
 # git-101
-Olduk hocam.
+
+recep taş birgad.com ziyaret ettiniz mi???
+
+Olduk hocam
 
 
 obone oldum hocam :D
