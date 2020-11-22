@@ -1,5 +1,8 @@
 # git-101
 
+Çoktan oldum hocam :) -- KADİR
+
+
 Hala beni instagram'dan takip etmiyor musun? @vedatkurtayy
 
 Abone oldum
@@ -15,4 +18,3 @@ Kerim Çağlar youtube kanalına hala abone olmadınız mı???
 bu ekibin ilk abonesi benim.
 
 Abone Oldum
-
